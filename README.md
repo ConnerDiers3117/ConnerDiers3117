@@ -21,8 +21,8 @@
 - 🧠 Continuously improve my programming skills and problem-solving abilities.  
 
 ### Let's Connect!  
-- 📫 How to reach me: **cdiers@example.com** (replace with your actual email)  
-- 💬 Connect with me on LinkedIn: **[Your LinkedIn Profile](https://www.linkedin.com/in/yourprofile/)**  
+- 📫 How to reach me: **connerdiers3117@gmail.com**
+
 
 I’m always open to collaborating on exciting projects or discussing new ideas. Feel free to reach out! 😄  
 
